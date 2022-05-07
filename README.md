@@ -14,7 +14,7 @@ Email : md3021822@protonmail.com
 
 Facebook : https://www.facebook.com/PHXrakib/
 
-Instagram : https://www.instagram.com/rzf_rakib/
+Instagram : https://www.instagram.com/RZF_rakib/
 
 Twitter : https://twitter.com/_supremerakib
 
