@@ -12,7 +12,7 @@ Discord : _Rakib™#7358
 
 Email : md3021822@protonmail.com
 
-Facebook : https://www.facebook.com/PHXrakib/
+Facebook : https://www.facebook.com/RakibX0E/
 
 Instagram : https://www.instagram.com/RZF_rakib/
 
